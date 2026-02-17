@@ -6,4 +6,4 @@
 ## Instructions
 * peel the avocados.
 * put the avocados in a bowl.
-
+* mash
